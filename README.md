@@ -6,4 +6,4 @@ I have experience in business analysis for agricultural markets, working on proj
 My projects can be viewed on my Github page.
 ## My contact details:
 Email: wiidlucille@gmail.com
-Cell: 0718427413
+LinkedIn: https://www.linkedin.com/in/lucille-jordaan-25ba7977/
